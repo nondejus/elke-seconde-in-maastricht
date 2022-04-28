@@ -1,1 +1,0 @@
-# elke-seconde-in-maastricht
